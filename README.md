@@ -1,8 +1,8 @@
 # SOBRE MIM 
 
 - 👋 oiii meu nome e @kamillemayer10
-- 👀 I’m intere                                                         
-ooo- 💞️ I’m looking to collaborate on .
+- 👀 I’m interaessada                                                         
+- 💞️ I’m looking to collaborate on .
 - 📫 How to reach me ...
 
 <!---
